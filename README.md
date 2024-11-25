@@ -1,2 +1,2 @@
-# How-to-Use-Trezor-Wallet-with-DeFi-Apps-1-855--446-1635
-Call +1 (855)-446-1635 to connect your Trezor Wallet to DeFi apps seamlessly. Unlock advanced features and protect your funds with professional guidance. Don’t wait—dial +1 (855)-446-1635 now for support!
+# How to Cancel Coinbase One Trial +1(844)439-5320
++1(844)439-5320 is the Coinbase support number you can call if you need assistance with canceling your Coinbase One trial. To cancel, log into your Coinbase account, go to settings, and find the "Coinbase One" section where you'll see the option to end your trial. If you have any trouble or need more details, don’t hesitate to call the Coinbase help number at +1(844)439-5320. Coinbase support is available to guide you through this process, ensuring you make the right decision.
